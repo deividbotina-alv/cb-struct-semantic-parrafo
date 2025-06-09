@@ -1,6 +1,6 @@
 # **Cartão Mercado Pago e Meli+: cashback e benefícios exclusivas pra você**
 
-[Texto da **equipe do** Mercado Pago](https://meubolso.mercadopago.com.br/author/equipe-mercado-pago)
+[Texto da **equipe do** Mercado Pago](https://meubolso.mercadopago.com.br/author/equipe-mercado-pago)  
 **em** 28/04/2025,  
 **com tempo estimado de leitura de** 6 min,  
 **E** atualizado em 28/04/2025.
@@ -19,7 +19,7 @@ Antes de mais nada, vamos entender: _o que é o cashback?_ O termo que significa
 
 Agora, imagine que além desse mega benefício, você ainda conta com outras vantagens exclusivas do Meli+. Além de ser o [programa de recompensas](https://meubolso.mercadopago.com.br/meli-o-que-mudou-no-programa-de-recompensas-do-mercado-pago) do melhor marketplace da América Latina e que veio para transformar sua experiência de compra, ele é a chave para desbloquear um mundo de economias e conveniências para você.
 
-Assinando o programa, você tem acesso a frete grátis em diversos produtos selecionados no Mercado Livre, parcelas extras sem juros para você comprar da melhor maneira possível sem comprometer o seu bolso e, claro, o tão desejado cashback. Ah, vale pontuar que o Meli+ é oferecido em dois planos, viu?! São eles: o **Meli+ Essencial**, por apenas R$ 9,90 por mês, e o **[Meli+](https://meubolso.mercadopago.com.br/conheca-o-novo-meli-mais-mercado-pago-mercado-livre)** **Total**, por R$ 24,90 por mês, que inclui acesso ao Disney+ e Deezer Premium, além de descontos em outras plataformas de conteúdo.
+Assinando o programa, você tem acesso a frete grátis em diversos produtos selecionados no Mercado Livre, parcelas extras sem juros para você comprar da melhor maneira possível sem comprometer o seu bolso e, claro, o tão desejado cashback. Ah, vale pontuar que o Meli+ é oferecido em dois planos, viu?! São eles: o **Meli+ Essencial**, por apenas R$ 9,90 por mês, e o **[Meli+](https://meubolso.mercadopago.com.br/conheca-o-novo-meli-mais-mercado-pago-mercado-livre) Total**, por R$ 24,90 por mês, que inclui acesso ao Disney+ e Deezer Premium, além de descontos em outras plataformas de conteúdo.
 
 _**Você sabia** que com o Meli+, você não apenas economiza **em** suas compras, mas também transforma **a forma como você realiza** suas compras, tornando cada centavo ainda mais valioso?_
 
@@ -48,16 +48,13 @@ Se você está buscando um cartão que vá além do básico e faça realmente a 
 E as vantagens não para por aí. Ainda existem muitas outras:
 
 1. **Anuidade zero**  
-A anuidade do Cartão Mercado Pago é totalmente grátis. Ou seja, você paga apenas o que usar.
-
+   A anuidade do Cartão Mercado Pago é totalmente grátis. Ou seja, você paga apenas o que usar.
 2. **Uso maximizado**  
-O cartão pode ser utilizado em compras nacionais e internacionais, em lojas físicas e online.
-
+   O cartão pode ser utilizado em compras nacionais e internacionais, em lojas físicas e online.
 3. **Controle total pelo app do Mercado Pago**  
-Você gerencia o seu cartão pelo app Mercado Pago, incluindo consultas de saldo e faturas.
-
+   Você gerencia o seu cartão pelo app Mercado Pago, incluindo consultas de saldo e faturas.
 4. **Facilidade no pagamento e ampla aceitação**  
-Você pode parcelar suas compras em qualquer lugar, inclusive pagar em até 18x sem juros no Mercado Livre ao comprar produtos selecionados. Além disso, o cartão do Mercado Pago possui ampla aceitação e apresenta as modalidades: Cartão de Crédito Mercado Pago, cartão virtual e débito, além da tecnologia NFC para fazer pagamentos rápidos e seguros por aproximação, sem precisar inserir o cartão na maquininha.
+   Você pode parcelar suas compras em qualquer lugar, inclusive pagar em até 18x sem juros no Mercado Livre ao comprar produtos selecionados. Além disso, o cartão do Mercado Pago possui ampla aceitação e apresenta as modalidades: Cartão de Crédito Mercado Pago, cartão virtual e débito, além da tecnologia NFC para fazer pagamentos rápidos e seguros por aproximação, sem precisar inserir o cartão na maquininha.
 
 ---
 
@@ -88,18 +85,14 @@ Diante de **tantas** vantagens, **torna-se** difícil **não** resistir. Economi
 
 ---
 
-¹ _**A conta que oferece o maior rendimento no Brasil**: **considera-se** a melhor opção de rendimento entre contas destinadas a pessoas físicas, **com um** aporte financeiro mínimo de R$ 1.000 e **um** saldo máximo de R$ 50.000 **na conta, sem a exigência de saldo mínimo**, abrangendo todo o território nacional. Consulte as condições para o rendimento de 105% do CDI em [https://www.mercadopago.com.br/ajuda/32110](https://www.mercadopago.com.br/ajuda/32110)._
+¹ **A conta que oferece o maior rendimento no Brasil**: **considera-se** a melhor opção de rendimento entre contas destinadas a pessoas físicas, **com um** aporte financeiro mínimo de R$ 1.000 e **um** saldo máximo de R$ 50.000 **na conta, sem a exigência de saldo mínimo**, abrangendo todo o território nacional. Consulte as condições para o rendimento de 105% do CDI em [https://www.mercadopago.com.br/ajuda/32110](https://www.mercadopago.com.br/ajuda/32110).
 
 ---
 
-💡**Leia também:**
+**💡Leia também:**
 
-**[Meli+ com mais benefícios: tudo sobre os novos planos de assinatura](https://meubolso.mercadopago.com.br/novos-planos-de-assinatura-meli-mais)**
-
-**[Acumulou** mais pontos **do** Meli+? Aproveite **todos** os benefícios](https://meubolso.mercadopago.com.br/meli-mais-como-aproveitar-beneficios)**
-
-**[Quer garantir os benefícios do Meli+? Veja o que fazer](https://meubolso.mercadopago.com.br/beneficios-meli)**
-
-**[Meli+: entenda como usar e aproveite os benefícios](https://meubolso.mercadopago.com.br/meli-mais-entenda-como-usar-e-aproveite-os-beneficios)**
-
-**[Acumule pontos no Meli+ com o Mercado Pago](https://meubolso.mercadopago.com.br/acumule-pontos-no-meli-com-mercado-pago)**
+- [Meli+ com mais benefícios: tudo sobre os novos planos de assinatura](https://meubolso.mercadopago.com.br/novos-planos-de-assinatura-meli-mais)
+- [Acumulou mais pontos do Meli+? Aproveite todos os benefícios](https://meubolso.mercadopago.com.br/meli-mais-como-aproveitar-beneficios)
+- [Quer garantir os benefícios do Meli+? Veja o que fazer](https://meubolso.mercadopago.com.br/beneficios-meli)
+- [Meli+: entenda como usar e aproveite os benefícios](https://meubolso.mercadopago.com.br/meli-mais-entenda-como-usar-e-aproveite-os-beneficios)
+- [Acumule pontos no Meli+ com o Mercado Pago](https://meubolso.mercadopago.com.br/acumule-pontos-no-meli-com-mercado-pago) 
